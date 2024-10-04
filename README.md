@@ -3,4 +3,4 @@
 - sou estudante
 - gosto de ver series e filmes
 - 😄💕🌻
-- ![](https://media1.tenor.com/m/YW9QqsuKrrEAAAAC/tukitukilulu02.gif)
+- ![](https://media1.tenor.com/m/vxFNoJHV3I4AAAAC/chiquichico.gif)
