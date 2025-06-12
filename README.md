@@ -4,8 +4,6 @@
 - 📺gosto de ver series e filmes
 - 😄💕🌻
 
-entre em contato comigo: @pamela_lanceiro 
-💌
 
 
 
