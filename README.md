@@ -1,5 +1,5 @@
 ## 👋 oiee, me chamo Pamela
-- ⏲️ Tenho 15 anos
+- ⏲️ Tenho 17 anos
 - 📖sou estudante
 - 📺gosto de ver series e filmes
 - 😄💕🌻
